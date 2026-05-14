@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with automatic pancakeswap trading bot Tool | slippage-control + flash-loan-integration, the #1 pancakeswap trading bot. Includes slippage-control and
 
 
 
